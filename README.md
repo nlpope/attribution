@@ -7,3 +7,5 @@
     https://www.vecteezy.com/free-vector/web-development
 
     https://www.vecteezy.com/free-vector/phrase
+    
+    https://www.vecteezy.com/free-vector/wine-glass
